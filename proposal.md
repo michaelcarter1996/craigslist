@@ -17,5 +17,5 @@ If you ever have some spare time and would like to collaborate with us, we'd be 
 
 ### Let's connect
 
-If you're open to learning more, feel free to reach me on **Telegram** — my handle is **@Puppy_199626** — or by email at **Ryder199626@outlook.com**. From there, we can discuss the collaboration in more detail, including revenue, role, and support.
+If you're open to learning more, feel free to reach me on **Telegram** — my handle is **@CodeHunter9** — or by email at **Ryder199626@outlook.com**. From there, we can discuss the collaboration in more detail, including revenue, role, and support.
 Thank you so much for your time I look forward to hearing from you! 🙏
